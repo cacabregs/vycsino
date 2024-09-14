@@ -2,7 +2,7 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
-    <a href="https://xn--guncelgrs-1pbb.com/kwwsv://aq--ydbfdvqr218-wfe.frp/" target="_blank">
+    <a href="https://xn--guncelgrs-1pbb.com/kwwsv://aq--ydbfdvqr219-wfe.frp" target="_blank">
         <img src="https://i.hizliresim.com/6j9tpu8.jpg" alt="Resim" alt="Açıklama">
     </a>
 </body>
@@ -12,7 +12,7 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
 </head>
 <body>
-    <a href="https://xn--guncelgrs-1pbb.com/kwwsv://aq--ydbfdvqr218-wfe.frp/" target="_blank">
+    <a href="https://xn--guncelgrs-1pbb.com/kwwsv://aq--ydbfdvqr219-wfe.frp" target="_blank">
         <img src="https://i.ibb.co/HXQSmLM/vaycasino-giriss.jpg" alt="Resim" alt="Açıklama">
     </a>
 </body>
